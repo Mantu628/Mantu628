@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Cyber Security and Ethical Hacking
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me mantubauri2003@gmail.com
-- 😄 Pronouns: 
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
 <!---
